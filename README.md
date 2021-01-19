@@ -1,1 +1,0 @@
-# dyt-hande-sukran-guven
